@@ -22,9 +22,9 @@ gonna lead their own
 gonna lead you
 gonna lead their own
 
-got it right yeah
-out of breath toss the breath
-on the side yeah
+GOT IT RIGHT YEAH
+OUT OF BREATH TOSS THE BREATH
+ON THE SIDE YEAH
 
 array of fright
 
